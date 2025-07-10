@@ -1,4 +1,4 @@
-# ✅ PLEASE REDIRECT TO MY NEW ACCOUNT ✅
+# ✅ PLEASE REDIRECT TO MY ORGINAL ACCOUNT ✅
 
 Hello! You've reached the former GitHub profile of Alireza Falah.
 
