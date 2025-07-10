@@ -1,6 +1,6 @@
 # ✅ PLEASE REDIRECT TO MY ORGINAL ACCOUNT ✅
 
-Hello! You've reached the former GitHub profile of Alireza Falah.
+Hello! You've reached the mock GitHub profile of Alireza Falah.
 
 To better organize my work and projects, I have changed my username.
 
