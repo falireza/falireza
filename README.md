@@ -1,4 +1,4 @@
-# An Important Update
+# ✅ PLEASE REDIRECT TO MY NEW ACCOUNT ✅
 
 Hello! You've reached the former GitHub profile of Alireza Falah.
 
@@ -8,6 +8,6 @@ To better organize my work and projects, I have moved to a new username.
 
 ## **[https://github.com/alirezafalah](https://github.com/alirezafalah)**
 
-All of my latest repositories, contributions, and projects are now available there. Please update your bookmarks.
+All of my latest repositories, contributions, and projects are now available there. 
 
 Thank you!
