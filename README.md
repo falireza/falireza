@@ -2,9 +2,9 @@
 
 Hello! You've reached the former GitHub profile of Alireza Falah.
 
-To better organize my work and projects, I have moved to a new username.
+To better organize my work and projects, I have changed my username.
 
-### **Please find my new and active profile at this address:**
+### **Please find my profile at this address:**
 
 ## **[https://github.com/alirezafalah](https://github.com/alirezafalah)**
 
