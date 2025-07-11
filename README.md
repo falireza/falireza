@@ -6,7 +6,7 @@ To better organize my work and projects, I have changed my username.
 
 ### **Please find my profile at this address:**
 
-## **[alirezafalah.github.io](www.alirezafalah.github.io)**
+## **[https://alirezafalah.github.io](https://alirezafalah.github.io)**
 
 All of my latest repositories, contributions, and projects are now available there. 
 
